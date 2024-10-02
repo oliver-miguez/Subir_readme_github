@@ -8,3 +8,5 @@ Para comprender las raíces de este problema, es necesario retroceder hasta 1947
  
 
 __Clave 1: La creación del Estado de Israel y el problema demográfico__
+
+El sionismo es un movimiento nacionalista que persigue la creación de un Estado judío y democrático en la Tierra Prometida del judaísmo, localizada en la Palestina histórica. Movidos por razones económicas, nacional-religiosas y humanitarias, los judíos comenzaron a emigrar hacia esta Tierra Prometida en 1881. La primera oleada judía a gran escala tuvo lugar en la década de 1930, en pleno Mandato Británico, como consecuencia de la persecución nazi.
