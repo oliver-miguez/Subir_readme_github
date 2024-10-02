@@ -5,3 +5,6 @@ Para comprender las raíces de este problema, es necesario retroceder hasta 1947
 
 
 > Israel representa a un pueblo que sufrió en sus carnes unos crímenes atroces. Años después es responsable de vulneraciones constantes del derecho internacional y de un sometimiento, represión y opresión constitutivos de crímenes de guerra contra otro pueblo marginado y repudiado: el palestino.
+ 
+
+__Clave 1: La creación del Estado de Israel y el problema demográfico__
