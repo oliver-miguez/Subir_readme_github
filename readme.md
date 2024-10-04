@@ -12,8 +12,8 @@ Para comprender las raíces de este problema, es necesario retroceder hasta 1947
 El sionismo es un movimiento nacionalista que persigue la creación de un Estado judío y democrático en la Tierra Prometida del judaísmo, localizada en la Palestina histórica. Movidos por razones económicas, nacional-religiosas y humanitarias, los judíos comenzaron a emigrar hacia esta Tierra Prometida en 1881. La primera oleada judía a gran escala tuvo lugar en la década de 1930, en pleno Mandato Británico, como consecuencia de la persecución ~~nazi~~.
 
 __Con el paso de los años, las comunidades judías asentadas en la Palestina histórica fueron creciendo y, con ello, aumentaron los enfrentamientos entre los palestinos que reivindicaban la independencia y los judíos que consideraban ese territorio como propio. Ante este panorama, el Reino Unido acudió a Naciones Unidas en 1947, que emitió la Resolución 181 (II). Esta resolución dividió la región en dos Estados: uno árabe y otro judío. A este último se le asignó el 54% del territorio. A Jerusalén, ciudad clave para ambas culturas, se le asignó un estatus de “corpus separatum” bajo un régimen internacional.__
-![Sin título.png](imagenes/Sin%20t%C3%ADtulo.png)
+![imagen.png](imagenes/Sin%20t%C3%ADtulo.png)
 
 
 
-## Fin 
+## Fin .
