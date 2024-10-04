@@ -16,4 +16,4 @@ __Con el paso de los años, las comunidades judías asentadas en la Palestina hi
 
 
 
-## Fin .
+## Fin ...
