@@ -13,3 +13,7 @@ El sionismo es un movimiento nacionalista que persigue la creación de un Estado
 
 __Con el paso de los años, las comunidades judías asentadas en la Palestina histórica fueron creciendo y, con ello, aumentaron los enfrentamientos entre los palestinos que reivindicaban la independencia y los judíos que consideraban ese territorio como propio. Ante este panorama, el Reino Unido acudió a Naciones Unidas en 1947, que emitió la Resolución 181 (II). Esta resolución dividió la región en dos Estados: uno árabe y otro judío. A este último se le asignó el 54% del territorio. A Jerusalén, ciudad clave para ambas culturas, se le asignó un estatus de “corpus separatum” bajo un régimen internacional.__
 ![Sin título.png](imagenes/Sin%20t%C3%ADtulo.png)
+
+
+
+## Fin 
